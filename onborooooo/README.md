@@ -1,0 +1,3 @@
+https://note.com/boro_note/n/nebfac3618896
+
+this dude didn't make a CAD guide, but the PDF attached is the closest we'll get...
